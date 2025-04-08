@@ -1,0 +1,1 @@
+# smirnova_math_model
